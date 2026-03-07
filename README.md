@@ -1,5 +1,4 @@
 # 💫 About Me:
-I am currently working on travel website
 
 
 ## 🌐 Socials:
